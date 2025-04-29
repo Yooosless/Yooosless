@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **afridssh@gmail.com**
 
-- 📄 Know about my experiences <a href="https://drive.google.com/file/d/1dA2YdrQS3Nd3n0G7zoI2YJb5ZeaN1QcU/view?usp=sharing" target="_blank">resume</a>
+- 📄 Know about my experiences <a href="https://drive.google.com/file/d/1BoO9R6in4OfWpVFH_nO9bORAkAy33k5C/view?usp=sharing" target="_blank">resume</a>
 
 
 - ⚡ Fun fact **Cabbage can be used in place of Onions**
